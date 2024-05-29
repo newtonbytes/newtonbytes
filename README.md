@@ -1,3 +1,3 @@
-- :) Hi, I’m @gurgenbaby
+- :) Hi, I’m @newtonbytes
 - 👀 I’m interested in Aerospace Engineering
 - 🌱 I’m currently studying masters in E&E engineering
